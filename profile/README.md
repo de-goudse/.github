@@ -1,11 +1,8 @@
 # Welkom bij De Goudse Verzekeringen
 
+Als ondernemer kunt u niet zonder een aantal zakelijke verzekeringen. Want, ondernemen is prachtig, maar brengt ook risico’s met zich mee. Bekijk de belangrijkste verzekeringen voor ondernemers.
 
-> Wij werken heel bewust samen met onafhankelijke adviseurs. Dankzij hun advies krijgt u de beste oplossing, die helemaal bij uw bedrijf en profiel past.
-> 
-*Bernardo Walta, directeur Commercie*
-
-**[Lees wat een adviseur voor u kan betekenen →](https://www.goudse.nl/algemeen/over-de-goudse/samenwerking-met-adviseurs)**
+**[Lees verder →](https://www.goudse.nl)**
 
 
 ## Waar wij voor staan
@@ -30,4 +27,10 @@ De Goudse helpt bedrijven, ondernemingen en particulieren met het omgaan met ris
 
 Daarnaast richten wij ons ook op specifieke niches waarbij deskundigheid en gespecialiseerde kennis nodig zijn. In de particuliere markt zijn wij actief in segmenten waarin wij onderscheidend kunnen zijn en/of bestaande klanten kunnen helpen bij hun ‘persoonlijk’ risicomanagement.
 
-**[Lees verder →](https://www.goudse.nl/)**
+---
+
+> Wij werken heel bewust samen met onafhankelijke adviseurs. Dankzij hun advies krijgt u de beste oplossing, die helemaal bij uw bedrijf en profiel past.
+> 
+*Bernardo Walta, directeur Commercie*
+
+**[Lees wat een adviseur voor u kan betekenen →](https://www.goudse.nl/algemeen/over-de-goudse/samenwerking-met-adviseurs)**
